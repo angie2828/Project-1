@@ -12,7 +12,6 @@ Jason Parsons - Real Estate and Telecommunications
 
 Kashyap Suratia - Technology and Energy
 
-Core Messages
 ### In a downward market, there are still areas where investors can find hedges and capture gains during the downturn. 
 
 Hypothesis
